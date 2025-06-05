@@ -1,4 +1,4 @@
-# 🇩🇪 Made in Germany | Digital Industrial Excellence 2025+ 
+#  Made in Germany GLOBAL| Digital Industrial Excellence 2025+ 
 
 <div align="center">
 
